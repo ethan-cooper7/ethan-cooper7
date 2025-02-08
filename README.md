@@ -1,6 +1,6 @@
 ### 🚨SNEAK PEAK🚨
 
 (*Double spread design for upcoming skate magazine project*)
-#
 
-![2](https://github.com/user-attachments/assets/a9b531f0-e360-4b06-9b4c-854908c03620)
+![2](https://github.com/user-attachments/assets/19fd5bfd-95fc-4e28-b167-fbd7266aa77f)
+
